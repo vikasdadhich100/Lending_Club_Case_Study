@@ -84,7 +84,7 @@ Give credit here.
 
 
 ## Contact
-Created by [@vikasdadhich100] and [@yesgvinayak] - feel free to contact me!
+Created by [@vikasdadhich100]/vikasdadhich1990@gmail.com and [@yesgvinayak]/vinayaksg01@gmail.com - feel free to contact me!
 
 
 <!-- Optional -->
